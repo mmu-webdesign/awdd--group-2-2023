@@ -171,5 +171,5 @@ Sporting activities in the city, workout classes, healthy eating options in the 
 Job hunting, attending university as an older student. 
 
 - Needs and goals:
-Help with societies and socialising, reccomendations on best places in Manchester for food and drinks, assitance in finding resources for postgraduate study. 
+Help with societies and socialising, reccomendations on best places in Manchester for food and drinks, assitance in finding resources for postgraduate study. Options for places to go with a quieter scene annd would like to avoid the typical uni student bars and restaurants.  
 ---
