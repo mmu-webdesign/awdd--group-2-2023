@@ -13,7 +13,7 @@ For this research, we conducted individual interviews with people between the ag
 - Age
 20
 
-- Degree Apprentice
+- Digital and Technology Solutions Degree Apprentice
 
 - Studying Digital and Technology solutions while living at home in Macclesfield and working at Royal London, visits Manchester weekly for either university or leisure. 
 
@@ -159,7 +159,7 @@ Catie Moignan
 - Age
 26
 
-- Physiotherapy Degree
+- Physiotherapy Undergraduate 
 
 - 3rd year undergraduate student living alone in Manchester who is in process of considering a postgraduate course. 
 
