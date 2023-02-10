@@ -86,7 +86,7 @@ Music production and songwriting, attending gigs and small artists. Socialising 
 Job hunting. Living with other people especially managing cooking and cleaning at home. 
 
 - Needs and goals:
-Ways to socialise with other artists to make connections, places in manchester with both music and food. Stories form previous graduate students to help on the decision to do a postgraduate or find a job. 
+Ways to socialise with other artists to make connections, places in manchester with both music and food. Stories form previous graduate students to help on the decision to do a postgraduate or find a job. Restaurant reccomendations with an older demographic, not full of uni students.
 
 ## Profile 5
 
@@ -98,7 +98,7 @@ Helena Ratchford
 
 - Games Art Undergraduate 
 
-- Recent undergraduate who moved from bristol, living in student accomodation.
+- Recent undergraduate who moved from Germany and is now living in student accomodation.
 
 - Likes:
 Digital drawing and creative activities. Eating out with friends at social places with a good environment. 
@@ -107,7 +107,7 @@ Digital drawing and creative activities. Eating out with friends at social place
 Not having many connections living in a new city, not knowing good places around the city to eat and drink.
 
 - Needs and goals
--Opportunities to make new friends in and out of university, cheap activities to do around Manchester, information on clubs, gyms or classes to join in the city to make friends. 
+-Opportunities to make new friends in and out of university, cheap activities to do around Manchester, information on clubs, gyms or classes to join in the city to make friends. Help with applications when studying away from home, especially with money. Help with understanding the cuisine of the country they recently moved to, reccomendations for places to eat and visit. 
 
 
 ## Profile 6
