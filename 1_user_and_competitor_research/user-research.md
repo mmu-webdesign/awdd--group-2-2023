@@ -15,7 +15,7 @@ For this research, we conducted individual interviews with people between the ag
 
 - Digital and Technology Solutions Degree Apprentice
 
-- Studying Digital and Technology solutions while living at home in Macclesfield and working at Royal London, visits Manchester weekly for either university or leisure. 
+- Studying and working at Royal London at the same time while living at home in Macclesfield. Clsoe links to the city centre and visits Manchester weekly for either university or leisure. 
 
 - Likes:
 Independant food establishments that are relatively low budget. Second hand fashion options close to Macclesfield. Drinking and eating with large groups of friends. Lively music venues. Animals such as dogs and cats. 
@@ -35,7 +35,7 @@ Easy to access things to do which take large groups of friends. Cheap but good f
 
 - Pharmaceutical Undergraduate 
 
-- 3rd year postgraduate student living in a shared flat in Levenhulme with close links to the city centre.  
+- 3rd year undergraduate student living in a shared flat in Levenhulme with close links to the city centre. Completingexams during termtime and taking part in internships at Wythenshawe hospital during the summer. 
 
 - Likes:
 Working spaces, libraries, coffee shops, cheap places to eat. Preference of mediterranean food. Opportunities for academic learning and enahncing skills. Researching and hands on activites that link to her course.  
@@ -55,7 +55,7 @@ Quiet options to be able to get work done. Places that are suited for dates. Opt
 
 - Business Management Undergraduate
 
-- 2nd year undergraduate student at MMU living in shared accomadation within the city centre. 
+- 2nd year undergraduate student studying at MMU and living within a shared block of flats in the centre of Manchester. 
 
 - Likes:
 Football and playing on the MMU team. Going out clubbing with friends, late night food options for afterwards. Clothes and shoe shopping within Manchester. Living with other people due to the cheap rent. Opportunities to create a portfolio for his career, likes attending talks and conference within the industry. 
@@ -74,9 +74,9 @@ Bryan Ebune
 - Age
 24
 
-- Unemployed
+- Temporary employement at Tesco
 
-- Still living in manchester in a shared flat after graduating from a Music and Sound Design degree. Currently job searching and looking into a postgraduate degree as unsure on what he wants to do. 
+- Still living in Manchester in a shared flat after graduating from a Music and Sound Design degree. Currently job searching and looking into a postgraduate degree as unsure on what he wants to do next. 
 
 - Likes:
 Music production and songwriting, attending gigs and small artists. Socialising with other artists through events or open mic. 
@@ -97,7 +97,7 @@ Helena Ratchford
 
 - Games Art Undergraduate 
 
-- Recent undergraduate who moved from Germany and is now living in student accomodation.
+- Recent undergraduate who moved from Germany and is now living in student accomodation in the city of Manchester.
 
 - Likes:
 Digital drawing and creative activities. Eating out with friends at social places with a good environment. 
@@ -119,7 +119,7 @@ Andy Wild
 
 - Chemistry Undergraduate 
 
-- Student living in a shared house in Fallowfield attending MMU
+- Student living in a shared house in Fallowfield attending MMU. 
 
 - Likes:
 Gaming with friends online and in person around Manchester, cinema, playing rugby for MMU sport, social events with the sports team. 
