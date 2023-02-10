@@ -4,7 +4,7 @@
 
 **Word count** provide a summary (300 word maximum) of your findings.
 
-For this research, we conducted individual interviews with people between the ages of 18 to 30 who are living close to Manchester City Centre and studying or have studied at MMU before. The interview focused on gathering information on their lifestyle habits through their likes and dislikes whilst also gathering insight on what goals or needs they would expect from a 'How To' guide. From this we are able to assess the similar needs between multiple participants to help us agree on what 'How To' guide would best suit our stakeholders. 
+For this research, we conducted individual interviews with people between the ages of 18 to 30 who are living close to Manchester City Centre and studying or have studied at MMU before. The interview focused on gathering information on their lifestyle habits through their likes and dislikes whilst also gathering insight on what goals or needs they would expect from a 'How To' guide. From this we are able to assess the similar needs between multiple participants to help us agree on what 'How To' guide would best suit our stakeholders. Throughout the answers, it is clear there is a needto be cost-effective as lots of answer include the needs for 'cheap' or 'budget'. 
 ---
 
 ## Profile 1
