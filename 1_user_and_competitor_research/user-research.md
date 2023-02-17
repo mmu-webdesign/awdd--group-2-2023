@@ -24,7 +24,7 @@ Independant food establishments that are relatively low budget. Second hand fash
 Fast fashion clothing. Living at home while all of her friends live in Manchester. 
 
 - Needs and goals:
-Easy to access things to do which take large groups of friends. Cheap but good food options that are not a chain. Food and drink close to transport links out of Manchester or near venues for gigs. Help to manage living at home and having a social life at uni. Accomadation options in Manchester for students. 
+Easy to access things to do which take large groups of friends. Cheap but good food options that are not a chain. Food and drink close to transport links out of Manchester or near venues for gigs. Help to manage living at home and having a social life at uni. Accomadation options in Manchester for students. Struggles with reading some forms of text and websites due to dyslexia so would need the guide to accomodate this. 
 
 ## Profile 2
 
