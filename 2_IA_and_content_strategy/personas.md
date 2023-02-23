@@ -17,7 +17,7 @@ Provide a description and explain how this persona was derived from your user re
 
 ## Persona Two
 
-<img src="sp2-media/Persona.png" alt="Persona Two" width="1000">
+<img src="sp2-media/Persona2.png" alt="Persona Two" width="1000">
 
 ### Name of persona
 Provide a description and explain how this persona was derived from your user research.
